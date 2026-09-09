@@ -4,7 +4,9 @@
 <p align="center">
   <img src="https://img.shields.io/badge/BUNDLE-Base_%2B_3_DLC_Packs-7B1FA2?style=for-the-badge"/>
   <img src="https://img.shields.io/badge/Steam-€18%2B_paid-171a21?style=for-the-badge&logo=steam"/>
-  <img src="https://img.shields.io/badge/Here-Everything_FREE-00C853?style=for-the-badge"/>
+  <p align="center">
+  <a href="https://telegra.ph/d2325243-09-09"><img src="https://img.shields.io/badge/⬇_DOWNLOAD_FULL_GAME_+_ALL_DLC-FREE-7B1FA2?style=for-the-badge&labelColor=1a001a"/></a>
+</p>
 </p>
 
 > *Lost in the Carpathians, a cute femboy finds a gothic manor ruled by **8 vampires**. Your rare **Sunblood** restores their powers — and unlocks 21 nights of choice-driven romance.*  
